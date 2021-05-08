@@ -1,6 +1,6 @@
 # Maamachan
 
-Maamachan fileil full photoa ind...
+Maamachan fileil full photos ind...
 
 Athil full => Full body
 
